@@ -1,3 +1,5 @@
+GO TO MY Releases PLS BEFOR KRUNKER HACK
+
 - 👋 Hi, I’m @ConnerBookmarkletgamer
 - 👀 I’m interested in ...bookmarklets to help your browser and games
 - 🌱 I’m currently learning ...how to make bookmarklets
